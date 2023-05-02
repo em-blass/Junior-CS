@@ -1,4 +1,4 @@
-Junior year 2023-2024
+## Junior year 2023-2024
 
 || Fall Semester: ||
 
